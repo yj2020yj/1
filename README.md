@@ -4,7 +4,7 @@
 ### [p3mk.com](http://p3mk.com)
 ### [ve5f.com](http://ve5f.com)
 ### [cw8c.com](http://cw8c.com )<br> 
-### 主播版下载地址 [7mvo.com](http://7mvo.com )
+### 主播版下载地址 [e0t3.com](http://e0t3.com)
 （观众下载无法使用）
 
 备用观众版下载地址如下<br>
@@ -22,7 +22,9 @@ q2fd.com<br>
 
 
 备用主播版下载地址如下<br>
-7mvo.com<br>
+oog4.com<br> 
+42a4.com<br> 
+0jzy.com<br>
 
 # 遇见回家页简介
 
