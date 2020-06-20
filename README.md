@@ -1,14 +1,13 @@
 # 遇见最新下载地址（2020年06月20日更新）
 
 ### 点击以下链接进入下载页：
-### [p3mk.com](http://p3mk.com)
+### [s6o9.com](http://s6o9.com)
 ### [ve5f.com](http://ve5f.com)
 ### [cw8c.com](http://cw8c.com )<br> 
 ### 主播版下载地址 [e0t3.com](http://e0t3.com)
 （观众下载无法使用）
 
-备用观众版下载地址如下<br>
-s6o9.com<br>      
+备用观众版下载地址如下<br>   
 4ld1.com<br>  
 q9lm.com<br>  
 qh6p.com<br>  
