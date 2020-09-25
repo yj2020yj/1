@@ -2,15 +2,12 @@
 
 ### 点击以下链接进入下载页：
 ### [s6o9.com](http://s6o9.com)
-### [ve5f.com](http://ve5f.com)
-### [cw8c.com](http://cw8c.com )<br> 
+### [4ld1.com](http://4ld1.com)
+### [qh6p.com](http://qh6p.com )<br> 
 ### 主播版下载地址 [e0t3.com](http://e0t3.com)
 （观众下载无法使用）
 
-备用观众版下载地址如下<br>   
-4ld1.com<br>  
-q9lm.com<br>  
-qh6p.com<br>  
+备用观众版下载地址如下<br>     
 3o9v.com<br>  
 5k1o.com<br>  
 3jvd.com<br>    
@@ -21,7 +18,6 @@ q2fd.com<br>
 
 
 备用主播版下载地址如下<br>
-oog4.com<br> 
 42a4.com<br> 
 0jzy.com<br>
 
